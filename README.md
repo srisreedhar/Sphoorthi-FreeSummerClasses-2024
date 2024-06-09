@@ -13,4 +13,9 @@ URL : https://sites.google.com/view/sphoorthi-oum
 Am grateful to His Holiness, Sri Sri Sri Guru ViswaSphoorthi, for blessing us all with this oppertunity to come together and learn something new.
 Hope you had a great Learning.
 
+**Site** : https://srisrisriguruviswasphoorthi.org/   <br>
+**Dates you can visit** : https://srisrisriguruviswasphoorthi.org/images/May2024-April2025%20Prgm@Hyd%20DMP.jpeg <br>
+( All dates highlighted in Green are Sundays and highlighted in Yellow are Festivals) <br>
+**Address** : https://maps.app.goo.gl/yQjsTZ7QtSWYfFybA
+
 Sphoorthi Oum
