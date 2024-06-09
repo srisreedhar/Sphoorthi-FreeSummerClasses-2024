@@ -8,7 +8,8 @@ URL : https://sites.google.com/view/sphoorthi-oum
 
 - The Class Workout files are uploaded in this Repository,
 - Class Recordings were shared in the Whatsapp Group.
-- A folder with "Next Steps" is created that has all the related links that helps you build the required resources to take these skills to Next level
+- A folder with [Next Steps](https://github.com/srisreedhar/Sphoorthi-FreeSummerClasses-2024/tree/main/Next%20Steps) is created that has all the related links that helps you build the required resources to take these skills to Next level. <br>
+  
 
 Am grateful to His Holiness, Sri Sri Sri Guru ViswaSphoorthi, for blessing us all with this oppertunity to come together and learn something new.
 Hope you had a great Learning.
